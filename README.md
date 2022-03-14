@@ -9,7 +9,7 @@ I am **Sir_Ashlogs**
 - 👨🏽‍💻A Penetration tester, Blogger and Content Creator.
 
 As you might have known, we keep learning **Forever**:
-- 👨‍🏫I am still a Cyber Security Student....working always to improve in my skills and achieve my career goals.
+- 👨‍🏫I am still a Cyber SecurityStudent....working always to improve in my skills and achieve my career goals.
 
 If you are into this field:
 - 💞 I will highly love to know and collaborate with you.
