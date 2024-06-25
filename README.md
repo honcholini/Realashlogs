@@ -4,14 +4,13 @@
 Hello Friend, So happy to see you come along way to check on me!
 
 Let me start by introducing myself,
-I am **Honcholini ALI. II**
-- 🕵🏽‍♂️An Ethical Hacker
-- 👨🏽‍💻A Security researcher and Crypto Day Trader.
+I am **H1neof1ne100x**
+- 👨🏽‍💻 Forex / Crypto Trader.
 
 As you might have known, we keep learning **Forever**:
-- 👨‍🏫I am still a Computer science student....working always to improve in my skills and achieve my career goals.
+- 👨‍🏫 Always working always to improve in my skills and achieve my Higher goals.
 
 If you are into this field:
-- 💞 I will highly love to know and collaborate with you.
-- 📱Connect with me in [linkedin](https://ng.linkedin.com/in/sir-ashlogs)
+- 🥂I will highly love to know and collaborate with you.
+- 📱Connect with me in [Telegram](https://t.me/thehoncholini
 - 📱Discord @Honcholini#0833
